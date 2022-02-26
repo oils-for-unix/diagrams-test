@@ -1,0 +1,1 @@
+Narrow waist blog posts.
